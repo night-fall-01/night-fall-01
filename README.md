@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-![Game Dev GIF](https://tenor.com/en-GB/view/bem-vindo-welcome-gif-9043644114225852917)
+![Game Dev GIF](https://www.animatedimages.org/data/media/707/animated-welcome-image-0215.gif)
